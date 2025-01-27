@@ -1,1 +1,0 @@
-# compañero de trabajo - коллега

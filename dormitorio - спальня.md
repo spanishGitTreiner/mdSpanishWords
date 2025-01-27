@@ -1,1 +1,0 @@
-# dormitorio - спальня

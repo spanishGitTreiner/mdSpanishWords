@@ -1,1 +1,0 @@
-# entrenador - тренер

@@ -1,1 +1,0 @@
-# cuánto cuesta - стоит

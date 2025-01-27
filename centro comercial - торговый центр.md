@@ -1,1 +1,0 @@
-# centro comercial - торговый центр
